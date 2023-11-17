@@ -1,0 +1,1 @@
+#Burda yazı olacaktı üşendim
